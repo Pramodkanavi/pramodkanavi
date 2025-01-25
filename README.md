@@ -1,4 +1,4 @@
-## Hi 👋, I'm Pramod
+## Hi 👋, I'm Pramod Kanavi
 
 I'm excited to share that I am actively looking new opportunities as Data Analyst. With over 4+ years of experience in handling data in Microsoft Excel. I have honed my skills in data visualization, Statistical Analysis through projects.
 
