@@ -15,7 +15,7 @@ I'm excited to share that I am actively looking new opportunities as Data Analys
 ![image](https://github.com/user-attachments/assets/2be00422-8192-44d2-b818-8ae8e1dee0ca)
 ![image](https://github.com/user-attachments/assets/cd90001b-097d-4baf-9120-1ce7c21cfe17)
 
-### My Achievements
+### Achievements :
 - 🏀 Member of University Basket-Ball team in Inter-University Competition for 3 times. Participated in National Basket Ball Tournament in 2 times.
 
 ### Connect with me:
